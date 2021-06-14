@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **shivanijoshi2106@gmail.com**
 
-- ⚡ Fun fact **If something isn't your cup of tea, grab a cup of tea and try again until it is! **
+- ⚡ Fun fact **I really prefer Tea over Coffee! >3 **
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
